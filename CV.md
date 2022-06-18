@@ -12,5 +12,7 @@
 
  ## Способы связи
  VK [https://vk.com/id424229542](https://vk.com/id424229542)
+
  Telegram @Z_228
+
  Почта zkalistov@gmai.com
