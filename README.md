@@ -1,1 +1,1 @@
-[Рюзеие](https://dnraww.github.io/cbsvib-practice/CV)
+[Рюзеие](https://github.com/Zedik007/cbsvib-practice.git./CV.md)
